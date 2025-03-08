@@ -1,0 +1,1 @@
+# tembak_mati_koruptor
